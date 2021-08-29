@@ -1,0 +1,2 @@
+# BİL483 - YÖNETİM BİLİŞİM SİSTEMLERİ
+ BİL483 - YÖNETİM BİLİŞİM SİSTEMLERİ
